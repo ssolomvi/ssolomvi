@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ssolomvi
-- 👀 I’m interested in learning & tea parties
+- 👀 I’m interested in learning
 - 🌱 I’m currently studying in MAI
 - 📫 In case You want to reach me, write me in Telegram or VK =)
 
