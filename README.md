@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @ssolomvi
-- 🌱 I’m currently studying in MAI
 - 📫 In case You want to reach me, write me in Telegram =)
 
 <!---
